@@ -35,4 +35,4 @@ If our privacy practices change, this policy will be updated and the new version
 
 For privacy questions or other support, contact:
 
-**xx@yy.zz**
+**primus.1ln1r@passmail.net**
